@@ -132,7 +132,7 @@
 
 ## 📫 **Connect with Me**
 
-📄 [**Resume**](#)
+📄 [**Resume**](https://drive.google.com/file/d/1q3Te6llLDDBUGpDErPcLweap-9WVwmAN/view?usp=sharing)
 
 💼 [**LinkedIn**](https://www.linkedin.com/in/swetha-bhagyalaksmi-p-a81616296)
 
