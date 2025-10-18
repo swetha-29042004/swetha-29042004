@@ -1,4 +1,4 @@
-## Hi!! Swetha Here 👋✨
+## Hi!! Swetha Here 🌟
 
 🚀 AI & Data Science Enthusiast | Machine Learning | Web Development | NLP
 
@@ -132,13 +132,7 @@
 
 ## 📫 **Connect with Me**
 
-📄 [**Resume**](https://drive.google.com/file/d/1q3Te6llLDDBUGpDErPcLweap-9WVwmAN/view?usp=sharing)
-
-💼 [**LinkedIn**](https://www.linkedin.com/in/swetha-bhagyalaksmi-p-a81616296)
-
-💻 [**GitHub**](https://github.com/swetha-29042004)
-
-✉️ [**Email**](mailto:swethabl2004@gmail.com)
+ [**Resume**](https://drive.google.com/file/d/1q3Te6llLDDBUGpDErPcLweap-9WVwmAN/view?usp=sharing) | [**LinkedIn**](https://www.linkedin.com/in/swetha-bhagyalaksmi-p-a81616296) | [**GitHub**](https://github.com/swetha-29042004) | [**Email**](mailto:swethabl2004@gmail.com)
 
 ---
 
